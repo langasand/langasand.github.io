@@ -18,6 +18,6 @@ Juryn kommer att bedömma fantasirikedom och konstnärlighet.
 
 Prisutdelning sker direkt när tävlingen är avslutad. Diplom och glass till startande. Vid ösregn ställs tävlingen in.
 
-Inspiration kan hämtas från föregående års tävling. Bilder på vår Facebook-sida här: <a href="https://www.facebook.com/media/set/?set=a.1507193269328859.1073741828.693299794051548&amp;type=1&amp;l=995880b25f">Soliga Långasand - Sandbyggartävling 2017</a>
+Inspiration kan hämtas från föregående års tävlingar. Bilder på vår Facebook-sida här: <a href="https://www.facebook.com/media/set/?set=a.1507193269328859.1073741828.693299794051548&amp;type=1&amp;l=995880b25f">Soliga Långasand - Sandbyggartävling 2017</a>
 <h3>Arrangör</h3>
 <strong>Långasands Fastighetsägareförening</strong>

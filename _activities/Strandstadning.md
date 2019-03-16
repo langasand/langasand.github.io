@@ -10,7 +10,7 @@ Efter städningen bjuder vi alla på grillkorv med bröd och dricka.
 Medtag egna arbetshandskar.
 
 Vi tackar den trogna skara som varje år är med och städar stranden.
-Det är inte tungt eller smutsigt men väldigt gemytligt när vi är fördiga.
+Det är inte tungt eller smutsigt men väldigt gemytligt när vi är färdiga.
 
 <h2>Bilder från tidigare städning</h2>
 
